@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @track-44
+- 👀 I’m interested in Software & AI
+- 🌱 I’m currently learning
